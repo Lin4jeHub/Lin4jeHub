@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Lin4je
+- 👀 I’m interested in easy money
